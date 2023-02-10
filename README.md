@@ -11,8 +11,6 @@ Contactos:
 
 e-mail: liberteoficial110@gmail.com
 
-Twitter 1: https://twitter.com/LiberteVip
-
-Twitter 2: https://twitter.com/NieblayHumo
+Twitter 1: https://twitter.com/LordAivazovsky
 
 Instagram: https://www.instagram.com/lordlibertetw/
